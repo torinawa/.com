@@ -1,6 +1,6 @@
 # Torinawa
 
-Torinawa is a producer of highquality, JBO free, rope for shibari.
+Torinawa is a Toronto based producer of highquality, JBO free, rope for shibari.
 
 We partner with the best manfucaturers and process the rope by hand to give the best expirience possible.
 
