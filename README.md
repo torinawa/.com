@@ -12,6 +12,8 @@ If you have any questions you can [email us.](mailto:torinawaltd+sales@gmail.com
 
 ### Premium JBO Free Jute Rope
 
+![length of processed jute](img/jute-length.jpg)
+
 We work with a specialist from one of Japans largest rope companies to import the highest quality jute rope that is designed and manufactured with shibari/bondage in mind. Our manufacturer works with the farmers directly to select the best plants for fiber strength and feel, and ensures you're getting the best quality for your dollar. The rope is then manufactured in ethically run processing plants in Bangladesh, using soybean oil instead of the cancergenic white petroleum based Jute Batching Oil. The rope twist and fiber density is carefully calculated to give you an end result that is strong, stays together under rigorous use and lasts!
 
 This rope then is packaged in recyclable packaging, avoiding the use of plastics, and imported by Torinawa into Canada, right here in Toronto, ON.
@@ -33,6 +35,8 @@ Our processed jute comes in 8m, 9m and 10m lengths. Custom sized orders require 
 
 ### Langman POSH
 
+![lengths of POSH, pink, purple, red, black, beige](img/posh-all.jpg)
+
 [POSH (stands for Portside Out, Starboard Home)](https://www.langmantouw.nl/en/product/posh/), is a spun polyester role (spun PET), that looks like a natural fiber rope. It has become a crowd favorite for shibari, particularly for its application in dangerous or dirty situations. The rope combined a soft touch, low stretch, and high UV and 100% strength retention when wet. You can use it to tie outside, in the water and more with no worries. Washable and safety rated this is a great alternative or addition to our natural Jute.
 
 We currently carry POSH in the following colors:
@@ -45,6 +49,13 @@ We currently carry POSH in the following colors:
 
 We can cut the POSH to whatever size you need with the minimum of 1 meter.
 
+### Miscellaneous
+
+We also sell:
+
+- Rope Butter and Lotion for jute rope treatment.
+- Safety Sheers for cutting rope.
+
 ## FAQ
 
 ### What length of rope should I use?
@@ -56,3 +67,9 @@ Most beginners will want to get 4 x 8m lengths, if you tie larger individuals ge
 JBO is used to reduce friction in the jute fiber machining process, most of the time this rope was meant to be used in commercial situations so the cheapest and most abundant lubricant was used, this white petroleum has been found to cause all sorts of nasty conditions when applied on skin as seen in this [PubMed Study on mice](https://pmc.ncbi.nlm.nih.gov/articles/PMC2041502/).
 
 Our manufacturer put out [a video detailing this.](https://www.youtube.com/watch?v=I72KymMR7i4)
+
+### How do you finish your rope ends?
+
+We use a flattened square knot to keep out rope ends from coming undone.
+
+![flattened overhand/square knot](img/knot.jpg)
