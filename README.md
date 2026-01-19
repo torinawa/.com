@@ -2,32 +2,46 @@
 
 Torinawa is a Toronto based producer of high quality, JBO free, rope for shibari.
 
-We partner with the best manufacturers and process the rope by hand to give the best experience possible.
+We partner with the best manufacturers and process the rope by hand to give the best possible experience.
 
-You can find our products at [Birdhaus](https://www.birdhausto.com/)!
+You can find our products in store at [Birdhaus](https://www.birdhausto.com/)!
 
-If you have any questions you can [email us.](mailto:torinawaltd+sales@gmail.com)
+Reach out to us via [email](mailto:torinawaltd+sales@gmail.com) or [instagram](https://www.instagram.com/torinawaltd/).
 
 ## Products
 
-### Premium JBO Free Jute Rope
+### Premium JBO Free KOUMANAWA SHIZEN Jute Rope
 
-![length of processed jute](img/jute-length.jpg)
+We are a exclusive Canadian distributor of [KOUMANAWA](https://koumanawa.com/) [SHIZEN](https://koumanawa.com/en/shizen/) JBO-free Shibari Kinbaku Jute Asanawa Rope.
 
-We work with a specialist from one of Japans largest rope companies to import the highest quality jute rope that is designed and manufactured with shibari/bondage in mind. Our manufacturer works with the farmers directly to select the best plants for fiber strength and feel, and ensures you're getting the best quality for your dollar. The rope is then manufactured in ethically run processing plants in Bangladesh, using soybean oil instead of the cancergenic white petroleum based Jute Batching Oil. The rope twist and fiber density is carefully calculated to give you an end result that is strong, stays together under rigorous use and lasts!
+![spools of KOUMANAWA shizen jute](img/SHIZEN%20Stack.jpeg)
+
+SHIZEN is a medium-loose lay JBO-free rope designed specifically for Shibari aficionados, connoisseurs and experts using our premium grade 100% Tossa KI yarn.
+
+KOUMANAWA works with the farmers directly to select the best plants for fiber strength and feel, and ensures you're getting the best quality for your dollar. The rope is then manufactured in ethically run processing plants in Bangladesh, using soybean oil instead of the cancergenic white petroleum based Jute Batching Oil. The rope twist and fiber density is carefully calculated to give you an end result that is strong, stays together under rigorous use and lasts!
 
 This rope then is packaged in recyclable packaging, avoiding the use of plastics, and imported by Torinawa into Canada, right here in Toronto, ON.
 
-You can purchase the rope in 145m spools right from the manufacturer, giving you the freedom to finish your experience however you like or you can purchase 8, 9, or 10 meter length already processed for you.
+We carry both 6mm and 5.5mm diameter lengths in 2.5kg spools.
 
-We use a 10 step process to make sure your rope is ready to be used:
+[You can pre-order them now here until Feb 6th.](https://forms.gle/8oYu2jou5R6bMMKv6)
+
+### Premium Treated Jute Lengths
+
+![length of processed jute](img/jute-length.jpg)
+
+You can purchase 8, 9, or 10 meter lengths of the KOUMANAWA Shizen Jute treated and ready for immediate use for shibari.
+
+We use a 6 step process to make sure your rope is ready to be used:
 
 1. We cut the rope to length off the spool, making sure that there are no defects in the line.
 2. The ropes are then run through our dryers at a high temperature to loosen and remove jute dust and small fibers.
 3. After "de-fluffing" the rope is covered in our specially formulated, Soybean wax and Jojoba oil, Rope Butter, and placed back into the dryers to set.
 4. Once the Rope Butter is absorbed deep into the fibers we singe off the little stray jute fibers on the lines with a blue flame.
 5. The rope then is treated with Soybean wax and Jojoba oil Rope Lotion which give it that last moisturizing protective coating.
-6. The last step is to work out all the built up energy from the process, making sure your ropes have little to no twist in them when you receive them. The rope them rest hung up for at least 24h.
+6. The last step is to work out all the built up energy from the process, making sure your ropes have little to no twist in them when you receive them.  
+
+The rope is then hung up for at least 24h to rest the fiber and let everything absorb.
 
 This labour intensive process leaves you with a fantastic rope ready for bondage for years to come.
 
