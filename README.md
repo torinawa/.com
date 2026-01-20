@@ -4,7 +4,7 @@ Torinawa is a Toronto based producer of high quality, JBO free, rope for shibari
 
 We partner with the best manufacturers and process the rope by hand to give the best possible experience.
 
-You can find our products in store at [Birdhaus](https://www.birdhausto.com/)!
+You can find our products in store at [Birdhaus](https://www.birdhausto.com/) and online at [shop.torinawa.ca](https://shop.torinawa.ca)
 
 Reach out to us via [email](mailto:torinawaltd+sales@gmail.com) or [instagram](https://www.instagram.com/torinawaltd/).
 
@@ -24,7 +24,9 @@ This rope then is packaged in recyclable packaging, avoiding the use of plastics
 
 We carry both 6mm and 5.5mm diameter lengths in 2.5kg spools.
 
-[You can pre-order them now here until Feb 6th.](https://forms.gle/8oYu2jou5R6bMMKv6)
+![6mm spool](img/SHIZEN%2060%202-5kg.jpeg)
+
+[You can pre-order them now here until Feb 6th.](https://shop.torinawa.ca)
 
 ### Premium Treated Jute Lengths
 
