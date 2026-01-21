@@ -77,8 +77,9 @@ try {
 layout: post
 title: "$Title"
 date: $(Get-Date -Format "yyyy-MM-dd HH:mm:ss zzz")
-categories:
 author: $authorToUse
+categories:
+tags:
 ---
 "@
     }
@@ -89,6 +90,7 @@ layout: post
 title: "$Title"
 date: $(Get-Date -Format "yyyy-MM-dd HH:mm:ss zzz")
 categories:
+tags:
 ---
 "@
     }
