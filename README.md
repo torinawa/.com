@@ -100,7 +100,7 @@ We recommend that you spot clean with dish soap and a wet lint free cloth if the
 
 POSH on the other hand can be throw in the laundry in a delicates bag and ran throw a regular warm or cold cycle with laundry detergent, drying it by hanging or if you are okay with 10% shrinkage tossing in the dryer on low.
 
-### Hope do I care for my rope?
+### How do I care for my rope?
 
 Natural rope needs to be used above all else. Prolonged periods of storage can lead to the rope drying out and becoming brittle. Treat rope like your skin, if it gets dry moisturize it using our Rope Lotion.
 
