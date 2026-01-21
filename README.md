@@ -89,3 +89,21 @@ Our manufacturer put out [a video detailing this.](https://www.youtube.com/watch
 We use a flattened square knot to keep out rope ends from coming undone.
 
 ![flattened overhand/square knot](img/knot.jpg)
+
+### How do I clean my rope?
+
+Natural rope like our jute cannot be washed, soaking the fibers of the rope will result in a weaker rope.
+
+If you are worried about particles in your rope, you can throw the rope in a delicates bag and put in a tumble dryer, some people have taken to vacuuming their rope, though thats not our recommendation.
+
+We recommend that you spot clean with dish soap and a wet lint free cloth if there is some minor staining, but otherwise natural rope should be treated as a non-cleanable toy and fluid exchange policies and risk profiles managed accordingly.
+
+POSH on the other hand can be throw in the laundry in a delicates bag and ran throw a regular warm or cold cycle with laundry detergent, drying it by hanging or if you are okay with 10% shrinkage tossing in the dryer on low.
+
+### Hope do I care for my rope?
+
+Natural rope needs to be used above all else. Prolonged periods of storage can lead to the rope drying out and becoming brittle. Treat rope like your skin, if it gets dry moisturize it using our Rope Lotion.
+
+Jute will get softer and smoother as it is used, just make sure that any damage or wear and tear is noted and the lengths are not used for up-lines if the bight is wearing out.
+
+POSH doesn't need anything special, just check the lengths occasionally for physical stress / damage and retire any pieces that have loose or broken strands.
