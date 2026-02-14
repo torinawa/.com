@@ -1,4 +1,6 @@
 - name: Home
   link: /
+- name: Shop
+  link: https://shop.torinawa.ca
 - name: Blog
   link: /blog.html
