@@ -26,7 +26,7 @@ We carry both 6mm and 5.5mm diameter lengths in 2.5kg spools.
 
 ![6mm spool](img/SHIZEN%2060%202-5kg.jpeg)
 
-[You can pre-order them now here until Feb 6th.](https://shop.torinawa.ca)
+[You can order them here.](https://shop.torinawa.ca/products/koumanawa-shinzen-jbo-free-jute-spool-for-shibari-kinbaku-rope-bondage)
 
 ### Premium Treated Jute Lengths
 
@@ -49,6 +49,8 @@ This labour intensive process leaves you with a fantastic rope ready for bondage
 
 Our processed jute comes in 8m, 9m and 10m lengths. Custom sized orders require purchase of a minimum of 1 spool's 145m worth of rope.
 
+[Buy them here.](https://shop.torinawa.ca/products/pre-order-koumanawa-shinzen-jbo-free-jute-cut-lengths-for-shibari-kinbaku-rope-bondage)
+
 ### Langman POSH
 
 ![lengths of POSH, pink, purple, red, black, beige](img/posh-all.jpg)
@@ -63,7 +65,7 @@ We currently carry POSH in the following colors:
 - purple
 - pink
 
-We can cut the POSH to whatever size you need with the minimum of 1 meter.
+[Order them here.](https://shop.torinawa.ca/products/langman-posh-spun-polyester-hemplike-rope-for-shibari-bondage)
 
 ### Miscellaneous
 
